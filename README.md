@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @KO7EX
+- 👀 I’m interested in coding for roblox
+- 🌱 I’m currently learning how to code
+- 💞️ I’m colaborating with Francisc001
+- 📫 How to reach me email(antoniociobanu88@gmail.
